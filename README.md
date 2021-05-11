@@ -3,7 +3,7 @@
 ## What I had for dinner last night:
 - Noodle soup
 - Salad
-- Teriyaki bowl
+- Fried Rice
 
 ## What I like to do during my free time:
 - Drawing
